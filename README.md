@@ -1,2 +1,3 @@
-# BestAdoptMe
-Check Your VALUES by VALUE CHECKER
+# Adopt Me VALUE CHECKER
+# Now you can check your WFL trades quickly!
+# My YT Channel - MintimyPlush_YT
